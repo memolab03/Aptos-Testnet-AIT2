@@ -1,5 +1,5 @@
 # Aptos-Testnet-AIT2
-Selam Dostlar, Sizlerle Bugün Aptos AIT 2 Testneti Katılacağız / ÖDÜL 500 $APTOS ÖNEMLİ
+
 
 Less Goo
 
